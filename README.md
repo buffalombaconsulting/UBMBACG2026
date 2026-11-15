@@ -1,4 +1,7 @@
-Website published: https://buffalombaconsulting.github.io/UBMBACG2026/
+
+Website published: https://www.buffalombaconsulting.group
+
+https://buffalombaconsulting.github.io/UBMBACG2026/
 
 
 
