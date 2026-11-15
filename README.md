@@ -1,5 +1,5 @@
 
-Website published: https://www.buffalombaconsulting.group
+Website published: (https://ubmbaconsulting.group/)
 
 https://buffalombaconsulting.github.io/UBMBACG2026/
 
